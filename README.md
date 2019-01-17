@@ -1,1 +1,0 @@
-# crazyfashion.github.io
